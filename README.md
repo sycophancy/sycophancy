@@ -8,7 +8,7 @@
 
  <p align="center"> 
 
-[image]
+##### [prns.cc](https://pronouns.cc/@sanctification)
 #####   bite‎ ‎⠀of ‎⠀the‎ ‎⠀rosary's ‎⠀beads
 
 
